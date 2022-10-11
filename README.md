@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @xbaeuforever
+- 🌱 I’m currently learning Chinese and many things.
